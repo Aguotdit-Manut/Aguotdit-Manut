@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Aguotdit-Manut
+- 👀 I’m interested in coding
+- 💞️ I’m looking to collaborate
+- 📫 How to reach me
+- aguotmanut22@gmail.com
+- +211 924 393 030
+- 😄 Pronouns: He
+- ⚡ Fun fact: ...
